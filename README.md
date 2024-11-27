@@ -1,4 +1,4 @@
-# sostenibilidad
+# SOSTENIBILIDAD
 
 ![](img/descarga.jpeg)
 
